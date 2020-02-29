@@ -31,3 +31,17 @@ The 4 Laws of Habit Change:
 
 ### Awareness
 * You must be aware of your habits before you can change them.
+
+## How To Break A Bad Habit
+
+1. Make It Invisible
+2. Make It Unattractive
+3. Make It Difficult
+4. Make It Unsatisfying
+
+
+### Make it Invisible  
+Reduce exposure. Remove the cueus of your bad habits from your environment.  
+
+### Make It Unattractive  
+Reframe your mind-set. 
